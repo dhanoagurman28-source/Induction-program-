@@ -23,3 +23,9 @@ It was the first day of induction program.I was very excited to begin my new pha
 Day2(31 july)
 
 It was a free day for me as Cs and IT students had their induction program.I explored the collage and outside market and made contacts with my hostelmates.At night I watched movies .
+<br>
+Day3(1st year)
+<br>
+
+It was the second day of our induction program and Dr.Priya Darshni taught us about “universal human values”.Then came Dr.Arvind Dhingra who taught us how to develop our personality and we played some mini games and he gave us information about various colleges societies.Then after lunch break,we had a profiency test of English and maths.
+
