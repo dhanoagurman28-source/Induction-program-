@@ -1,3 +1,4 @@
+It was a free day for me as Cs and IT students had their induction program.I explored the collage and outside market and made contacts with my hostelmates.At night I watched movies .
 z# Induction-program-
 
 
@@ -21,3 +22,4 @@ It was the first day of induction program.I was very excited to begin my new pha
 <br>
 Day2(31 july)
 
+It was a free day for me as Cs and IT students had their induction program.I explored the collage and outside market and made contacts with my hostelmates.At night I watched movies .
