@@ -42,7 +42,7 @@ We had a lecture by Mr.Gautam Muria on Motor sports.Then we had an expert lectur
 <br>
 Day6(6th August)
 <br>
-We had a lecture of Dr.Parminder Singh who is dean of student welfare.Then we had an expert lecture by Mr.Manpreet Singh on topic of fitness for engineers in which he taught us about the importance of health.Then we had a lecture of Brigadier P.S.Cheema sir who motivated us.Then our seniors taught us some coding.
+We had a lecture of Dr.Parminder Singh who is dean of student welfare.Then we had an expert lecture by Mr.Manpreet Singh on topic of fitness for engineers in which he taught us about the importance of health.Then we had a lecture of Brigadier P.S.Cheema sir who motivated us.Then our seniors taught us some coding
 
 
 
