@@ -28,4 +28,11 @@ Day3(1st August)
 <br>
 
 It was the second day of our induction program and Dr.Priya Darshni taught us about “universal human values”.Then came Dr.Arvind Dhingra who taught us how to develop our personality and we played some mini games and he gave us information about various colleges societies.Then after lunch break,we had a profiency test of English and maths.
+<br>
+Day4(4th August)
+<br>
+First there was a lecture by Causmic club in which we were told about the club and the activities that are carried by them.Then 
+Dr.Priya Darshani continued her lecture on Universal Human Values.After lunch break ,we had our physics lecture in which our teacher told us about the distribution of marks and told us the syllabus of physics in first semester.Then we had a P2P session which was conducted by our seniors.
+
+
 
