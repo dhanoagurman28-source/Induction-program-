@@ -33,6 +33,9 @@ Day4(4th August)
 <br>
 First there was a lecture by Causmic club in which we were told about the club and the activities that are carried by them.Then 
 Dr.Priya Darshani continued her lecture on Universal Human Values.After lunch break ,we had our physics lecture in which our teacher told us about the distribution of marks and told us the syllabus of physics in first semester.Then we had a P2P session which was conducted by our seniors.
-
+<br>
+Day5(5th August)
+<br>
+We had a lecture by Mr.Gautam Muria on Motor sports.Then we had an expert lecture on Millets by Mrs.Shaffy Makkar.
 
 
