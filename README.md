@@ -50,6 +50,12 @@ We had a lecture of Dr.Parminder Singh who is dean of student welfare.Then we ha
 Day7(7th August)
 <br>
 Firstly we had our maths lecture by Mr.Sukhvinder Singh who told us about some apps to build our practical knowledge.Then we had our ID card formation outside TCC hall.Then after our lunch break Dr.Jasvir Singh Grewal gave us knowledge about NSS and we did some fun activities together.
+<br>
+Day8(8th August)
+<br>
+Today,firstly we had our physics class by prof Jasmeet kaur who taught us some basics about vectors.Then after lunch break we had our economics lecture by prof.Varinder Singh.After that we had a lecture of Motor Physics which was very interesting.
+
+
 
 
 
