@@ -46,6 +46,13 @@ We had a lecture by Mr.Gautam Muria on Motor sports.Then we had an expert lectur
 Day6(6th August)
 <br>
 We had a lecture of Dr.Parminder Singh who is dean of student welfare.Then we had an expert lecture by Mr.Manpreet Singh on topic of fitness for engineers in which he taught us about the importance of health.Then we had a lecture of Brigadier P.S.Cheema sir who motivated us.Then our seniors taught us some coding
+<br>
+Day7(7th August)
+<br>
+Firstly we had our maths lecture by Mr.Sukhvinder Singh who told us about some apps to build our practical knowledge.Then we had our ID card formation outside TCC hall.Then after our lunch break Dr.Jasvir Singh Grewal gave us knowledge about NSS and we did some fun activities together.
+
+
+
 
 
 
